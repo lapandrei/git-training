@@ -1,2 +1,5 @@
 #I live in city Kirov
-i am 44 years old
+
+i am work in Perekrestok
+
+my part of me is Dasha
